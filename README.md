@@ -4,4 +4,4 @@
 - 💬 Ask me about tech.
 - 📫 How to reach me: Twitter @KoimaSam
 - 😄 Pronouns: he
-- ⚡ Fun fact: I'm a pro Gamer.
+- ⚡ Fun fact: I code for fun
